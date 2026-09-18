@@ -57,7 +57,7 @@ To start my career as a **Data Analyst** and solve real-world business problems 
 
 ## 📫 Connect With Me
 
-📧 Email: ajaiofficiall@gmail.com
+📧 Email: aajai2858@gmail.com
 
 💼 LinkedIn:
 www.linkedin.com/in/ajai-m-147207352
